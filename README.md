@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @M461C
+- 🌱 I’m currently learning C# but im to bored for this thing
+- 📫 How to reach me on Discord:No Money#1000
